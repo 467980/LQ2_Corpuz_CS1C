@@ -1,1 +1,0 @@
-# LQ2_Corpuz_CS1C
